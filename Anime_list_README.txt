@@ -1,1 +1,1 @@
-This is creatin the repo for jpeg animelist for Le_New_ifighter
+This is creatin the repo for jpeg animelist for Le_New_ifighter _ after edit

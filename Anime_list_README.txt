@@ -1,1 +1,1 @@
-This is creatin the repo for jpeg animelist for Le_New_ifighter _ after edit
+Text file the main branch is called main not master 
